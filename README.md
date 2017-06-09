@@ -6,3 +6,6 @@
 
 _**Only use this fonts if you have permission**_
 
+###### No copyright infringment is intended - please contact me if removal is necessary
+
+
